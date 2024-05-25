@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Aerovirendra
 - 👀 I’m interested in ...Coding.& Research  
-- 🌱 I’m currently learning ...Bsc.and B-tech(IITM & UPES) 
+- 🌱 I’m currently learning ...Bsc.and B-tech(UPES) 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 
